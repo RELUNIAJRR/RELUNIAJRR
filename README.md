@@ -6,7 +6,7 @@
 
 
 - Facebook: https://www.facebook.com/people/Jan-Ryan-R-Relunia/100005535224855/
-- Twitter: @ReluniaRyan
+- Twitter: https://twitter.com/ReluniaRyan
 - Gmail: janryanrelunia@gmail.com
 
 
